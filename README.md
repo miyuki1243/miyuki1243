@@ -1,16 +1,15 @@
-## Hi there 👋
+![Image](https://github.com/user-attachments/assets/ce61568e-50ce-4689-9cd4-6c6bcaf1df9a)
 
-<!--
-**miyuki1243/miyuki1243** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔
 
-Here are some ideas to get you started:
+╰┈┈➤ 𝚌+𝚑 ✶⋆.˚ 𝚠2𝚒 ᛝ ⋮ 𝚒𝚗𝚝 𝚞𝚗𝚕𝚎𝚜𝚜 𝚍𝚗𝚒 𝚒𝚜 𝚒𝚗 𝚖𝚢 𝚗𝚊𝚖𝚎 ! ⸝⸝ 　　———-««
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+☆ . ᶻ 𝗓 𐰁
+
+⤷ 𝚑𝚊𝚑𝚊 , 𝚑𝚊𝚙𝚙𝚢 𝚝𝚘 𝚋𝚎 𝚊𝚕𝚒𝚟𝚎 ! . ·˚ ༘₊· ͟͟͞͞꒰➳
+
+-ˋˏ✄┈┈┈┈ ⁱˢᶠʲ  ۫ ׅ ᵉⁿᵍ . ╭──╯ . . . . .
+
+ᛝ ── .✦ 𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚊𝚜𝚔 𝚖𝚎 𝚊𝚗𝚢𝚝𝚑𝚒𝚗𝚐 ! ⸝⸝ .
+
+‹𝟹  ‿‿‿‿

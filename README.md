@@ -10,6 +10,6 @@
 
 -ˋˏ✄┈┈┈┈ ⁱˢᶠʲ  ۫ ׅ ᵉⁿᵍ . ╭──╯ . . . . .
 
-ᛝ ── .✦ 𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚊𝚜𝚔 𝚖𝚎 𝚊𝚗𝚢𝚝𝚑𝚒𝚗𝚐 ! ⸝⸝ .
+ᛝ ── .✦ super offline unless i get a day off (never UGH) or when im awake before my routin ⸝⸝ .
 
 ‹𝟹  ‿‿‿‿
